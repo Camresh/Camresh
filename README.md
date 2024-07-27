@@ -44,8 +44,8 @@ I'm always excited to work on new IT projects. If you have an interesting idea o
 ## 📫 Get in Touch
 
 - 📧 Email: cameshjames@gmail.com
-- 🔗 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/your-profile)
-- 🐦 Twitter: [@YourTwitterHandle](https://twitter.com/your-handle)
+- 🔗 LinkedIn: https://www.linkedin.com/in/james-mwangi-njenga-23694726b/
+- 🐦 Twitter: https://x.com/CamreshJames
 
 ## ⚡ Fun Fact
 
